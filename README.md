@@ -21,4 +21,4 @@
 平台上的所有内容完全免费，无需任何注册或下载。你只需点击影片链接，即可马上开始观看。我们定期更新影片库，确保你总能第一时间看到最新、最受欢迎的作品，享受无广告、无付费的看片乐趣。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/yan7852/467788 ）</span>
